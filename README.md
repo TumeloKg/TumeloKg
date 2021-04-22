@@ -13,5 +13,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: Am not a nerd!!!!!!!
 -->
 
-###Connect with me: 
-- yah am not really the social type.
